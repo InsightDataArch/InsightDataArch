@@ -1,6 +1,6 @@
-# Nagaraj Rao
+# Arthem Nagaraj Rao
 
-## Arthem | A Passionate Data Analyst
+## A Passionate Data Analyst
 
 [LinkedIn](https://www.linkedin.com/in/nagaraj-arthem) | [Email](mailto:arthem.nagaraj@gmail.com) | Hyderabad, India
 
